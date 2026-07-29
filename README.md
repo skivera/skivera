@@ -1,4 +1,3 @@
-   <p align="center"> ⛔｡　means i'm building　 𑣲.　 🌙｡　means i'm dealing with family　 <img width="32" height="32" alt="image" src="https://github.com/user-attachments/assets/42a37707-2410-41fa-8857-9c6f02779390" /> !!
 </p>
 <p align="center"> <img width="1280" height="10" alt="image" src="https://github.com/user-attachments/assets/93207fff-685f-4ff6-9c8f-0bbff3b67f11" />
  </p>
