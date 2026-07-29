@@ -1,4 +1,4 @@
-<p align="center"> im too lazy to make this look pretty,   bear with me rn  !!</p>
+<p align="center"> im too lazy to make this look pretty,   bear with me rn  !! (wip)</p>
 <p align="center"><img width="608" height="308" alt="image" src="https://github.com/user-attachments/assets/f70334ab-f245-46f2-9446-30f67f9598ce" />
  /</p>
 <p align="center"> i'm rarely AFK, i'm only AFK if my family needs something  ⋆ keep in mind i'm socially anxious</p>
