@@ -1,5 +1,5 @@
 </p>
-<p align="center"> ⛔= building⠀|⠀speaks in party chat
+<p align="center"> ⛔<sup>=</sup> building⠀|⠀speaks in party chat
 <p align="center"> <img width="268" height="209" alt="image" src="https://github.com/user-attachments/assets/c9a24106-604a-4195-a587-4aeaf5b7880d" />
 <p align="center"> <img width="268" height="10" alt="image" src="https://github.com/user-attachments/assets/010a6085-cf48-40a4-9e87-bb6ffdb6e261" />
  <p align="center"> jakari⠀ (rieper)⠀★⠀<ins>rarely afk</ins>
