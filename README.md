@@ -1,9 +1,12 @@
 </p>
-<p align="center"> <img width="1280" height="10" alt="image" src="https://github.com/user-attachments/assets/93207fff-685f-4ff6-9c8f-0bbff3b67f11" />
- </p>
-<p align="center"><img width="508" height="248" alt="image" src="https://github.com/user-attachments/assets/f70334ab-f245-46f2-9446-30f67f9598ce" />
- </p>
-<p align="center"> <ins>minor</ins>　•　rarely afk　 　//<img width="21" height="22" alt="image" src="https://github.com/user-attachments/assets/912791e7-be57-4736-8d42-d952e3b756e6" /> 　 　i'm socially anxious 　 •　 i usually talk in party chat </p>
-<p align="center"> 𓏲﹕ https://pokefarm.com/user/jakari ｡　 　HOLD MY EGGS PLEASE (i need delta points) </p>
-<p align="center"> <img width="1280" height="10" alt="image" src="https://github.com/user-attachments/assets/1db25bab-b891-4e4e-8426-318d7a4b45ea" />
+
+<p align="center"> <img width="268" height="209" alt="image" src="https://github.com/user-attachments/assets/c9a24106-604a-4195-a587-4aeaf5b7880d" />
+<p align="center"> <img width="268" height="10" alt="image" src="https://github.com/user-attachments/assets/010a6085-cf48-40a4-9e87-bb6ffdb6e261" />
+ <p align="center"> jakari (rieper)⠀★⠀it / thym
+ <p align="center">  minor､⠀reserved ‎ +⠀<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/07683e51-d5d8-43a6-bca8-bf18ec13a32a" />
+ 𓈒!
+<p align="center"> <img width="268" height="10" alt="image" src="https://github.com/user-attachments/assets/b5ee848c-cfb1-4445-a479-4cee7fe94dde" />
+
+
+
  </p>
