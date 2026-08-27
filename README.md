@@ -7,7 +7,7 @@
    ⠀  𓈒!
 
 <p align="center"> <img width="19" height="19" alt="image" src="https://github.com/user-attachments/assets/c4cff731-3da7-4568-b0c9-af9384e5bd70" />
-⠀ USUALLY IN PARTY CHAT⠀ +⠀ minor
+⠀  USUALLY IN PARTY CHAT⠀ +⠀ minor
 
   
 <p align="center">  <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/e5c6300b-3cfe-4a6c-99a3-f5f7971b7750" />
