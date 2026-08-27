@@ -1,4 +1,5 @@
-<p align="center"> <img width="1280" height="10" alt="image" src="https://github.com/user-attachments/assets/d16b5a79-9d32-463e-8231-56e73ba36775" />
+<p align="center"> <img width="590" height="14" alt="image" src="https://github.com/user-attachments/assets/069b14e5-e7c5-4066-b02e-0847f716b4e5" />
+
   
 
 
@@ -13,7 +14,8 @@
 ⠀ USUALLY IN PARTY CHAT⠀ +⠀ minor
 
   
-<p align="center"> <img width="1280" height="10" alt="image" src="https://github.com/user-attachments/assets/cfd6d55a-dff1-4a3d-b546-739cc5734d3f" />
+<p align="center"> <img width="590" height="14" alt="image" src="https://github.com/user-attachments/assets/f6c18651-5a1c-47e5-a093-412bbf4936a0" />
+
 
 
  
