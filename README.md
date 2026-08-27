@@ -1,5 +1,7 @@
 
+
 ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀     ⠀  ⠀   ⠀  ⠀  ⠀ —⠀  ![](https://komarev.com/ghpvc/?username=skivera&color=lightgrey&style=flat-square&label=military+fashion+show&abbreviated=true) ⠀†
+<p align="center">  <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/e5c6300b-3cfe-4a6c-99a3-f5f7971b7750" />
 <p>
 <p align="center"> <img width="350" height="336" alt="image" src="https://github.com/user-attachments/assets/88b7284f-dbfd-44ff-9677-494a514fc937" />
 
@@ -10,7 +12,8 @@
 ⠀ USUALLY IN PARTY CHAT⠀ +⠀ minor
 
   
-<p align="center">  <img width="400" height="23" alt="image" src="https://github.com/user-attachments/assets/b19d0ca2-a398-4683-8617-ffad9515690c" />
+<p align="center">  <img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/e5c6300b-3cfe-4a6c-99a3-f5f7971b7750" />
+
 
 
 
