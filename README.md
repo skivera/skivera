@@ -1,7 +1,3 @@
-<p align="center"> <img width="590" height="14" alt="image" src="https://github.com/user-attachments/assets/069b14e5-e7c5-4066-b02e-0847f716b4e5" />
-
-  
-
 
 ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀     ⠀  ⠀   ⠀  ⠀  ⠀ —⠀  ![](https://komarev.com/ghpvc/?username=skivera&color=lightgrey&style=flat-square&label=military+fashion+show&abbreviated=true) ⠀†
 <p>
@@ -14,7 +10,8 @@
 ⠀ USUALLY IN PARTY CHAT⠀ +⠀ minor
 
   
-<p align="center"> <img width="590" height="14" alt="image" src="https://github.com/user-attachments/assets/f6c18651-5a1c-47e5-a093-412bbf4936a0" />
+<p align="center">  <img width="400" height="23" alt="image" src="https://github.com/user-attachments/assets/b19d0ca2-a398-4683-8617-ffad9515690c" />
+
 
 
 
