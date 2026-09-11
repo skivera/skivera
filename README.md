@@ -1,5 +1,5 @@
 <p align=center> <img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/72000964-549c-4904-a070-e2f4e148660b" />
-<p align=center>  jakari or rieper, im rarely afk
+<p align=center>  jakari or rieper, rarely afk
 <p align=center>  this is a wip im too lazy ok?
  <p align=center>  usually speaks in party chat
 <p align=center> <img width="300" height="100" alt="image" src="https://github.com/user-attachments/assets/17faf82b-a9b1-498f-9fe3-498738c455b7" />
