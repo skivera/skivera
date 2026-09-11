@@ -1,13 +1,12 @@
 <p align="center">  <img width="147" height="32" alt="image" src="https://github.com/user-attachments/assets/189a7ad4-a58d-405b-bfd5-768d316a60fb" />
 <p>
-<p align="center">  <img width="320" height="320" alt="image" src="https://github.com/user-attachments/assets/3e06dc02-d155-4b6f-b44d-5395ff544fce" />
+<p align="center">  <img width="340" height="340" alt="image" src="https://github.com/user-attachments/assets/e2acd8c8-44d1-49fa-8bb5-5619f4e70bb5" />
 
 
-
-<p align="center">  jakari⠀ (rieper)⠀★⠀rarely afk   ‎ ‎ <img width="50" height="20" alt="image" src="https://github.com/user-attachments/assets/82be726e-c430-458b-a59b-fafa1bd665a6" />
+<p align="center">  jakari⠀ (rieper)⠀★⠀rarely afk   ‎ ‎ <img width="50" height="20" alt="image" src="https://github.com/user-attachments/assets/2eee4619-0732-4df0-935f-5fef6b5420eb" />
    ⠀  𓈒!
 
-<p align="center"> <img width="20" height="19" alt="image" src="https://github.com/user-attachments/assets/dc75bb23-1a5f-4ae2-a320-e359c1ddc99c" />
+<p align="center"> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4c643624-57be-4f69-a3eb-64db46281c8e" />
 ⠀  USUALLY IN PARTY CHAT⠀ +⠀ minor
 
 <details>
