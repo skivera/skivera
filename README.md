@@ -8,8 +8,6 @@
 <p align="center"> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a8d30712-7d7a-46da-b0e6-7690cc098d23" />
 ⠀  USUALLY IN PARTY CHAT⠀ +⠀ minor
 
-<p align="center"> <img width="330" height="35" alt="image" src="https://github.com/user-attachments/assets/63bf50cc-48af-465c-a025-5d7b88013345" />
-
 
 
 
